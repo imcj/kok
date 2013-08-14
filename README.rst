@@ -10,5 +10,7 @@ King of kings
 
 `浴火凤凰 <http://web.archive.org/web/20010925022327/http://cnagain.com/>`_
 
+`隐者之都 <http://kok.cnite.net/new.htm>`_ 唯一一个一直保留下来的网站。
+
 `17173.com 万王之王频道 <http://web.archive.org/web/20040202172343/
 http://www.17173.com/wanwang/index.htm>`_
